@@ -5,9 +5,7 @@ Notes &amp; Snippets
 
 ### Base
 
-Richard H. Ross
-Environmental and occasional digital historian.
----
+Richard H. Ross, Environmental and occasional digital historian.
 Web: goatrockresearch.org	
 Twitter: @richardhross
 
