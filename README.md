@@ -4,7 +4,7 @@ Notes &amp; Snippets
 ## Basic Bio Text
 
 **Richard H. Ross**<br />
-Environmental &amp; occasional digital historian<br />
+Environmental &amp; occasional Digital Historian<br />
 Web: goatrockresearch.org<br />	
 Twitter: @richardhross
 
